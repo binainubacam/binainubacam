@@ -1,0 +1,2 @@
+# binainubacam
+Jornalista
